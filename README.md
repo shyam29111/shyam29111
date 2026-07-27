@@ -23,8 +23,6 @@
 
 - 📫 How to reach me **shyamtibrewal29111@gmail.com**
 
-- ⚡ Fun fact **I am an otaku**
-
 <br>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
